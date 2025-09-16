@@ -1,1 +1,1 @@
-# tipsterai-site
+# rizzai-site# GrowCalc-site
